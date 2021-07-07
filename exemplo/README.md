@@ -1,0 +1,1 @@
+Tô amando o treinamento! Vamo pra cima!!
